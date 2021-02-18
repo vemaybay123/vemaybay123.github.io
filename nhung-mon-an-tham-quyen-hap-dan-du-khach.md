@@ -1,0 +1,63 @@
+# Những món ăn Thẩm Quyến hấp dẫn du khách
+
+Đi du lịch Thẩm Quyến bên cạnh việc tham quan những cảnh đẹp tại đây du khách không thể nào bỏ lỡ những món ăn Thẩm Quyến hấp dẫn du khách vô cùng độc đáo và ngon đến khó cưỡng, những món ăn đường phố tại Thẩm Quyến khá bình dân và giản dị vì thế bạn sẽ không phải tốn quá nhiều chi phí.
+
+
+
+<p>1. Mỳ xào Chow Mein - nét đặc trưng người Thẩm Quyến</p>
+
+Nhắc đến những món ăn Thẩm Quyến ngon tuyệt bạn chắc chắn không thể nào không biết đến món mỳ xào Chow Mein, đây là món ăn gần như không thể thiếu trong nền ẩm thực truyền thống của người Trung Quốc. Món mì xào này còn được gọi với cái tên thân thương là bánh canh.
+
+Thành phần chính của sợi mì Trung Quốc khá đa dạng có thể từ gạo, hay bột mì hoặc tinh bột đậu xanh. Khi chế biến người Trung Quốc thường cho thêm bột muối vào để sợi mì đậm đà hơn, món mì sẽ hấp dẫn hơn khi được kết hợp tinh tế với thịt, hành tây, cà rốt và một số loại rau. Bạn có thể dễ dàng bắt gặp một quán mì Chow Mein ở khắp mọi nơi từ quán ăn vỉa hè cho đến những nhà hàng sang trọng, tuy khá nhiều dầu mỡ nhưng món ăn thật sự ngon và dễ gây nghiện.
+
+![mi-xao-chow-mein-tham-quyen-vemaybay123](https://i.imgur.com/Tbu2UfF.jpg)
+
+Mì Chow Mein có mặt ở khắp mọi nơi từ quán ăn vỉa hè cho đến những nhà hàng sang trọng
+
+
+
+
+
+2. Kung Pao Chicken
+
+Chỉ cần nghe tên là bạn đã biết món ăn này sử dụng nguyên liệu nào rồi, Kung Pao Chicken sẽ khiến cho cơn 'nghiện gà' của du khách trỗi dậy với vị cay nồng, béo ngậy đặc trưng, cùng ớt và đậu phộng khi ăn cùng cơm trắng sẽ thực sự rất hấp dẫn.
+
+Với mùi thơm độc đáo, món ăn được trang trí vô cùng bắt mắt, thớ thịt có vị đậm đà khi được ướp cẩn thận sẽ khiến cho bất kỳ du khách nào khi ăn thử sẽ nhớ mãi không thôi. Nếu có cơ hội đi du lịch Thẩm Quyến bạn đừng bỏ lỡ cơ hội được thưởng thức món này nhé.
+
+![ga-Kung-Pao-tham-quyen-vemaybay123](https://i.imgur.com/n5Fzv3A.jpg)
+
+Kung Pao Chicken với vị cay nồng béo ngậy đặc trưng cùng ớt và đậu phộng ăn cùng cơm trắng sẽ rất hấp dẫn
+
+
+
+Xem thêm: **[Vé máy bay đi Thanh Đảo giá rẻ - Vé máy bay khứ hồi đi Trung Quốc](https://vemaybay123.vn/ve-may-bay-di-thanh-dao-gia-re.html)**
+
+
+3. Đậu phụ Mapo
+
+Đây là món ăn có truyền thống lâu đời của Trung Hoa và có xuất xứ từ tỉnh Tứ Xuyên, tuy nhiên khi đến Thẩm Quyến nó lại được chế biến theo phương pháp mới lạ hơn, có thêm một vài gia vị đặc trưng để người ăn nhớ lâu hơn. Một sự kết hợp hoàn hảo từ vị béo ngậy của đậu phụ, cộng với chút cay nồng của sa tế cũng như hương thơm nhẹ của dầu mè, khiến cho món ăn Thẩm Quyến này được lòng du khách và quyến rũ kể cả những thực khách khó tính nhất.
+
+Món đậu phụ Mapo xuất hiện ở khắp mọi nơi tại Trung Quốc, nếu có dịp du lịch khám phá Thẩm Quyến du khách đừng quên dành thời gian thưởng thức món ăn ngon vô cùng nổi tiếng Đậu phụ Mapo để có thêm những trải nghiệm thú vị nhất nhé.
+
+![mapo-tofu-china-vemaybay123](https://i.imgur.com/mD5jZIa.jpg)
+
+Đậu phụ Mapo là sự kết hợp hoàn hảo từ vị béo ngậy đậu phụ, cùng chút cay nồng của sa tế và hương thơm của dầu mè
+
+
+
+4. Hoành thánh mang hương vị cổ truyền Trung Quốc
+
+Nhắc đến ẩm thực Trung Quốc chắc chắn không thể nào bỏ qua món hoành thánh, đây là món ăn đặc sản trứ danh của vùng đất Thẩm Quyến và có lẽ đã không ít lần bạn được thưởng thức tại Việt Nam nhưng chắc chắn tại nơi xuất xứ món ăn này sẽ mang hương vị đậm đà, chuẩn vị nhất.
+
+Mang hương vị khá đặc biệt, hoành thánh được làm từ thịt, hải sản và rau răm băm nhỏ, gói cẩn thận bằng vỏ bột mì, nặn đều bằng tay theo hình tam giác vuông, trông gần giống như món Tortellini của nước Ý. Miếng bánh gói đẹp mắt sẽ được mang đi hấp đến khi chín mềm nhưng vẫn chắc trong vỏ bọc và có mùi thơm đặc trưng riêng, có thể thấy được nhân bên trong. Ngoài ra bạn cũng có thể thử thưởng thức món hoành thánh chiên giòn cũng vô cùng ngon và lạ miệng đấy.
+
+![hoanh-thanh-chien-gion-tham-quyen-vemaybay123](https://i.imgur.com/oSBgqxu.jpg)
+
+Món hoành thánh chiên giòn tại Thẩm Quyến cũng vô cùng ngon và lạ miệng hấp dẫn khách du lịch
+
+
+**[Kinh nghiệm du lịch Nam Kinh - Vé máy bay đi Nam Kinh Trung Quốc](https://vemaybay123.vn/kinh-nghiem-du-lich-nam-kinh.html)**
+
+
+
+Đi du lịch Thẩm Quyến bên cạnh việc thăm quan cảnh đẹp đừng quên thưởng thức những món ăn Thẩm Quyến ngon khó cưỡng này nhé, không quá sang trọng như thủ đô Bắc Kinh cũng không sầm uất nhộn nhịp như thành phố Thượng Hải, nhưng thành phố Thẩm Quyến lại có nét đặc trưng riêng khiến cho du khách nhớ mãi, trong đó không thể nào không nhắc đến nền ẩm thực đa dạng và hấp dẫn, bởi lẽ những món ăn ngon hấp dẫn này mang đậm nét đặc sắc của nền ẩm thực Trung Hoa.
